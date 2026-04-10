@@ -1,0 +1,2 @@
+# The-Symbolic-Architecture-of-Extremism-NLP-Archetypal-Analysis-of-Youth-Radicalization
+Post-pandemic symbolic environments structurally mirror extremist narratives in ways no classifier detects. Using Jungian archetype scoring across ideological texts, news media, and youth psychometrics, Shadow and Trickster dominate all three levels — predicting distinct radicalization pathways before explicit behavioral extremism appears.
